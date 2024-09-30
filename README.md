@@ -1,1 +1,1 @@
-# Atreistudio.github.io
+# AtreiStudio.github.io
